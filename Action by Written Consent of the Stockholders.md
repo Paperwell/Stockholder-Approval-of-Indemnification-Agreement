@@ -13,6 +13,7 @@ Pursuant to Section 228 of the Delaware General Corporation Law and the Bylaws o
 
 >**2. Omnibus Resolution**
 >>**RESOLVED:**  That the proper officers of the Company are authorized and empowered to take such other actions and sign such other documents as they deem necessary or advisable to carry out the intent of the foregoing resolutions, and all prior actions taken in connection therewith are hereby ratified and approved. 
+
 This Action by Written Consent may be executed in counterparts, each of which shall be deemed an original and all of which together shall constitute one instrument. 
 
 Dated: _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _  
